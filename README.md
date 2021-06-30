@@ -2,6 +2,9 @@
 
 
 ### Seção 1: Você Pode Ser Um Grande Comunicador
++ Saber ouvir é essencial
++ Não interromper o outro.
++ Deixar as pessoas falarem.
 
 ### Seção 2: Consiga Exatamente o Que Você Quer Com Uma Comunicação Assertiva e…Seção 2: Consiga Exatamente o Que Você Quer Com Uma Comunicação Assertiva e Persuasiva
 
@@ -34,3 +37,7 @@
 ### Seção 16: [Curso Extra 03] A melhor técnica de produtividade pessoal do mun…Seção 16: [Curso Extra 03] A melhor técnica de produtividade pessoal do mundo
 
 ### Seção 17: Aula Bônus
+
+Avaliação do curso
++ boa oratória
++ prático
