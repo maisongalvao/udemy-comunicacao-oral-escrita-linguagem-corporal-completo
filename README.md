@@ -1,5 +1,5 @@
-# udemy-comunicacao-oral-escrita-linguagem-corporal-completo
-Comunicação e Oratória | O Guia COMPLETO + 3 Cursos Extras
+# Comunicação e Oratória | O Guia COMPLETO + 3 Cursos Extras
+
 
 ### Seção 1: Você Pode Ser Um Grande Comunicador
 
